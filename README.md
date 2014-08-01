@@ -13,6 +13,7 @@
 === Window ===
 
 * Milgard Quite Line STC 48
+* http://www.kriegerproducts.com/acoustical/ STC 56
 * 
 
 == Contacted ==
