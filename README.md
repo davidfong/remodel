@@ -19,7 +19,8 @@
 == Contacted ==
 
 * http://www.audimutesoundproofing.com/ 
-Jul 31 Form submitted 
+** Need to call (866) 505 6883
+** Looks like they are in Ohio
 
 * http://www.westcoastsoundsolutions.com/ 
 Jul 31 Form submitted
