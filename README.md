@@ -19,12 +19,12 @@
 == Contacted ==
 
 * http://www.audimutesoundproofing.com/ 
-* Need to call (866) 505 6883
-* Looks like they are in Ohio
+* Called (866) 505 6883
+* Suggests that airplane noise are of low frequency. Need multiple layers of soundproofing materials.
 
 * http://www.westcoastsoundsolutions.com/ 
-* Jul 31 Form submitted
 * 888.927.7496
+* Coming on Aug 19 10am
 
 * http://www.zeusremodeling.com/
 * Aug 2 form submitted
